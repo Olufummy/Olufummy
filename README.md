@@ -14,7 +14,7 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning Web Development and Software Enginnering with ALX
 - 🤔 I’m looking for help with any project
 - 💬 Ask me about my profession.
-- 📫 How to reach me: Adeboyejoisaac18@gmail.com
+- 📫 How to reach me: Whatapp:+2348067616620, Mail:Adeboyejoisaac18@gmail.com
 - 😄 Pronouns: Isaac
 - ⚡ Fun fact: ...
 -->
