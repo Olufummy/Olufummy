@@ -16,7 +16,7 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with any project and open-source
 - 💬 Ask me about my profession.
 - 📫 How to reach me: Whatapp:+2348067616620, Mail:Adeboyejoisaac18@gmail.com
-- 💬 on twitter: Oufummy6
+- 💬 on twitter: Olufummy6
 - 💬 on linkedin: Adeboyejo O Isaac
 - 😄 Pronouns: Isaac
 - ⚡ Fun fact: ...
