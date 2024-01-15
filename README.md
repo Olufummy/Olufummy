@@ -11,10 +11,13 @@ Languages and Tools:  <img src="https://github.com/devicons/devicon/blob/master/
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working on ...
-- 🌱 I’m currently learning Web Development and Software Enginnering with ALX
-- 🤔 I’m looking for help with any project
+- 🔭 I’m currently learning Microsoft AZURE...
+- 🌱 I’m a certified Web Development and Software Enginnering with ALX
+- 🤔 I’m looking for help with any project and open-source
 - 💬 Ask me about my profession.
 - 📫 How to reach me: Whatapp:+2348067616620, Mail:Adeboyejoisaac18@gmail.com
+- 💬 on twitter: Oufummy6
+- 💬 on linkedin: Adeboyejo O Isaac
 - 😄 Pronouns: Isaac
 - ⚡ Fun fact: ...
 -->
