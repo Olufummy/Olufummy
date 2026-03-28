@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on ML and PYTHON ...<br>🔭 I’m currently studying my masters in ADVANCED COMPUTING WITH ARTIFICIAL INTELLIGENCE...<br>🌱 I’m a certified Web Development and Software Enginnering with ALX<br>🤔 I’m looking for help with any project and open-source<br>💬 Ask me about my profession.<br>📫 How to reach me: Whatapp:+2348067616620, Mail:Adeboyejoisaac18@gmail.com<br>💬 on twitter: Olufummy6<br>💬 on linkedin: Adeboyejo O Isaac<br>😄 Pronouns: Isaac<br>⚡ Fun fact: ... -->
+🔭 I’m currently working on ML and PYTHON ...<br>🔭 I’m currently studying my masters in ADVANCED COMPUTING WITH ARTIFICIAL INTELLIGENCE...<br>🌱 I’m a certified Web Development and Software Enginnering with ALX<br>🤔 I’m looking for help with any project and open-source<br>💬 Ask me about my profession.<br>📫 How to reach me: Whatapp:+, Mail:Adeboyejoisaac18@gmail.com<br>💬 on twitter: Olufummy6<br>💬 on linkedin: Adeboyejo O Isaac<br>😄 Pronouns: Isaac<br>⚡ Fun fact: ... -->
 
 
 ## 🌐 Socials:
