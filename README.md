@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on Machine Learning, Deep Learning ...<br>🔭 I’m currently studying my masters in ADVANCED COMPUTING WITH ARTIFICIAL INTELLIGENCE...<br>🌱 A certified Frontend Development and Junior Software Engineer with ALX<br>🤔 I’m looking to help with any project and open-source <br>💬 Ask me about my profession.<br>📫 How to reach me: Whatapp:, Email: Adeboyejoisaac18@gmail.com<br>💬  twitter: Olufummy6<br>💬  linkedin: Adeboyejo O Isaac<br>😄 Pronouns: Funmi Isaac<br>⚡ Fun fact: NONE .... -->
+🔭 I’m currently working on Machine Learning, Deep Learning and NLP ...<br>🔭 I’m currently studying my masters in ADVANCED COMPUTING WITH ARTIFICIAL INTELLIGENCE...<br>🌱 A certified Frontend Development and Junior Software Engineer with ALX<br>🤔 I’m looking to help with any project and open-source <br>💬 Ask me about my profession.<br>📫 How to reach me: Whatapp:, Email: Adeboyejoisaac18@gmail.com<br>💬  twitter: Olufummy6<br>💬  linkedin: Adeboyejo O Isaac<br>😄 Pronouns: Funmi Isaac<br>⚡ Fun fact: NONE .... -->
 
 
 ## 🌐 Socials:
